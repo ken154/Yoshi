@@ -1,0 +1,2 @@
+# Yoshi
+High School nickname
